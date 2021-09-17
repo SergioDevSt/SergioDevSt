@@ -6,7 +6,7 @@ Actualmente estoy estudiado 👓 , ingeniería en computación en la UNAM 🎏
 
 Aquí estoy subiendo mis trabajos escolares 📑 y algunos programas que hago en mi tiempo libre 🌱
 
-Sé hablar escribir y hablar inglés con soltura.
+Sé escribir y hablar inglés con soltura.
 
 En mi tiempo libro corro 🏃 , juego videojuegos 🎮 y salgo con mi perro 🐶
 
